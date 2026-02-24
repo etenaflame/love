@@ -7,3 +7,4 @@ for market  open or close gap
 and i wish 1 year i get million
 and i can plan to buy home
 and car motorcycle
+now i feel bad 
