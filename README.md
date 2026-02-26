@@ -9,3 +9,4 @@ and i can plan to buy home
 and car motorcycle
 now i feel bad 
 it very hard to do it
+note
