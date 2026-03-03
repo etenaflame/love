@@ -18,3 +18,4 @@ wake up to learn
 and next day i am go to trip
 tueday
 badday
+wordl is war what sup
