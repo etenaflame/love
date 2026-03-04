@@ -25,3 +25,4 @@ red market
 see ya
 ok
 yes or no
+it ok if you learn more
