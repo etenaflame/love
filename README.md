@@ -9,7 +9,7 @@ and i can plan to buy home
 
 now i feel bad 
 it very hard to do it
-note
+
 today very busy 
 cant to do TT
 learn code
