@@ -17,7 +17,7 @@ sleep
 wake up to learn
 and next day i am go to trip
 tueday
-
+thursday
 wordl is war what sup
 i want peach 
 not happ y
