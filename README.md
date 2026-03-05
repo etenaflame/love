@@ -24,6 +24,6 @@ not happ y
 red market
 see ya
 ok
-yes or no
+
 
 
