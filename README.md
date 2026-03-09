@@ -27,3 +27,4 @@ ok
 saturday
 gg
 miss
+wake up to learn cryto
