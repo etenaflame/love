@@ -13,7 +13,7 @@ very bore lay
 today very busy 
 cant to do TT
 learn code
-sleep5
+sleep555
 wake up to learn
 and next day i am go to trip
 tueday
