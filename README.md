@@ -10,7 +10,7 @@ and sleep
 now i feel bad 
 it very hard to do it
 very bore lay
-today very busy 
+today very busy ..
 cant to do TT
 learn code22
 sleep555
