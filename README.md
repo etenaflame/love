@@ -3,7 +3,7 @@ study eng
 1 2 3 to git hub lol
 today i wait u
 for market  open or close gap pli
-70 to open 30 to colose
+70 to open 30 to colose up
 and i wish 1 year i get million
 and i can plan to buy home
 and sleep
