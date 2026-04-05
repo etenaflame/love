@@ -7,7 +7,7 @@ for market  open or close gap pli.
 and i wish 1 year i get million ok
 and i can plan to buy home.
 and sleep z z.
-now i feel bad 
+now i feel bad .
 it very hard to do it
 very bore lay
 today very busy ..
