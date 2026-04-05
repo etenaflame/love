@@ -9,7 +9,7 @@ and i can plan to buy home.
 and sleep z z.
 now i feel bad .
 it very hard to do it
-very bore lay
+very bore lay.
 today very busy ..
 cant to do TT
 learn code22
