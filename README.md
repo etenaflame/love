@@ -1,6 +1,6 @@
 # love u11.
 study eng11
-1 2 3 to git hub lol111
+1 2 3 to git hub lol111.
 today i wait u11
 for market  open or close gap pli
 70 to open 30 to colose up
