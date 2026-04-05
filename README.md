@@ -1,7 +1,7 @@
 # love u11
 study eng11
 1 2 3 to git hub lol
-today i wait u
+today i wait u11
 for market  open or close gap pli
 70 to open 30 to colose up
 and i wish 1 year i get million ok
