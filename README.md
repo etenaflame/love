@@ -23,7 +23,7 @@ i want peach
 not happ y
 red market
 see ya
-ok oil
+ok oil.
 saturday
 gg
 miss
